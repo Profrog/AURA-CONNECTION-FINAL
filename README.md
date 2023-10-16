@@ -1,2 +1,4 @@
 # AURA-CONNECTION-FINAL
 AURA CONNECTION FINAL FOR DAEDALUS
+
+VIDEO : https://www.youtube.com/watch?v=5tsH03EbstE
